@@ -1,5 +1,6 @@
 # educanication
-educación financiera es igual a liberta
-libertad es igual a no ser parte de la manada
+educación financiera es igual a libertad
+libertad es igual a 
 no ser parte de la manada
-es no estar manipulado
+es no estar manipuladoes 
+es tener conciencia propia
