@@ -4,3 +4,4 @@ libertad es igual a
 no ser parte de la manada
 es no estar manipuladoes 
 es tener conciencia propia
+ser arquitecto de tu destino
