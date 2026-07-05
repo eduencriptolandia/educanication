@@ -6,4 +6,5 @@ es no estar manipulados
 es tener conciencia propia
 ser arquitecto de tu destino
 comandante de tu futuro
-dueño de tu tiemp
+dueño de tu tiempo
+vigilante de tu adelante
