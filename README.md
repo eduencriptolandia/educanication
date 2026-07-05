@@ -8,3 +8,4 @@ ser arquitecto de tu destino
 comandante de tu futuro
 dueño de tu tiempo
 vigilante de tu adelante
+escudo de la propaganda
