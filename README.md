@@ -10,3 +10,4 @@ dueño de tu tiempo
 vigilante de tu adelante
 escudo de la propaganda
 surfeante de la ola
+marinero de la arena
