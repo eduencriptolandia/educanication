@@ -12,3 +12,4 @@ escudo de la propaganda
 surfeante de la ola
 marinero de la arena
 bandera del viento
+capitán de tu navio
