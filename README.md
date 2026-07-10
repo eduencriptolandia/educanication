@@ -13,3 +13,4 @@ surfeante de la ola
 marinero de la arena
 bandera del viento
 capitán de tu navio
+ingeniero de tu sistema
