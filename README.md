@@ -20,3 +20,4 @@ pintor de tu lienzo
 piloto de tu carrera
 boligrafo de tu nota
 vino de tu cosecha
+reloj de tu hora
