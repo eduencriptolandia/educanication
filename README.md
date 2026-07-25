@@ -27,4 +27,5 @@ tormenta de tu desierto
 pulso de tu corazón
 árbol de tu bosque
 abrigo de tu invierno
+coraje de tu miedo
 
