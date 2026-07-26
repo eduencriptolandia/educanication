@@ -28,4 +28,5 @@ pulso de tu corazón
 árbol de tu bosque
 abrigo de tu invierno
 coraje de tu miedo
+aroma de tu olfato
 
