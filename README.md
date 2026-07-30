@@ -31,4 +31,5 @@ coraje de tu miedo
 aroma de tu olfato
 luz de tu noche
 espada de tu puño
+pluma de tu letra
 
