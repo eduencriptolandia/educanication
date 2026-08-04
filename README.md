@@ -35,3 +35,4 @@ pluma de tu letra
 copa de tu vino
 cristal de tu lluvia
 música de tus oidos
+pena de tu tango
