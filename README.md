@@ -47,3 +47,4 @@ renta de tu libertad
 cristal de tu copa
 sierra de tu descanso
 oliva de tu vid
+oleo de tu pincel
