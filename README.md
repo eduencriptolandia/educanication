@@ -60,3 +60,4 @@ carretera de tu viaje
 semáforo de tu prisa
 pasaje de tu vuelo
 rapsodia de tu bohemia
+humildad de tu soberbia
