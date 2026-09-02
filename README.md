@@ -63,3 +63,4 @@ rapsodia de tu bohemia
 humildad de tu soberbia
 palabra de tu verso
 sonrisa de tu lamento
+cristal de tu lente
