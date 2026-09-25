@@ -85,5 +85,6 @@ máscara de tu carnaval
 ser paloma y poder volar
 rampla de tu despegue
 hoguera de tu vanidad
+estrellita de tu duende
 
 
