@@ -88,5 +88,6 @@ hoguera de tu vanidad
 estrellita de tu duende
 mañanitas de tus cumpleaños
 ser vuelo de la noche
+intuición de tu instinto
 
 
