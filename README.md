@@ -92,5 +92,6 @@ intuición de tu instinto
 calma de tu tempestad
 mar de tu velero
 sonrisa de tu rostro
+fibonacci de tu subida
 
 
