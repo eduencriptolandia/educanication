@@ -93,5 +93,5 @@ calma de tu tempestad
 mar de tu velero
 sonrisa de tu rostro
 fibonacci de tu subida
-
+stop de tu bajada
 
