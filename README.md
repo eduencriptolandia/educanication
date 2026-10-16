@@ -105,3 +105,4 @@ ser leña de tu hoguera
 rocio de tu mañana
 ser cara de tu cruz
 caravana de tu ruta
+crepúsculo de tu alba
