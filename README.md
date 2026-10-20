@@ -108,3 +108,4 @@ caravana de tu ruta
 crepúsculo de tu alba
 centinela de tu cantina
 sombrero de tu sol
+guerrero de tu coliseo
