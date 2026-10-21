@@ -109,3 +109,4 @@ crepúsculo de tu alba
 centinela de tu cantina
 sombrero de tu sol
 guerrero de tu coliseo
+estrella de tu firmamento
