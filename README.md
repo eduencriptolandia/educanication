@@ -110,3 +110,4 @@ centinela de tu cantina
 sombrero de tu sol
 guerrero de tu coliseo
 estrella de tu firmamento
+estrella de tu medianoche
