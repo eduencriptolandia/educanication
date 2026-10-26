@@ -113,3 +113,4 @@ estrella de tu firmamento
 estrella de tu medianoche
 sinfonia de tu concierto
 orilla de tu rio
+lucero de tu madrugada
