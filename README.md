@@ -123,3 +123,4 @@ trueno de un desierto
 ventisquero de tu glaciar
 eucaliptus de tu inundación
 sombrita de tu veranito
+esmeralda de tu rubi
