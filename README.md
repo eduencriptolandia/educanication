@@ -139,3 +139,4 @@ firmamento de tu telescopio
 experimento de tu locura
 espiral de tu bicisenda 
 esquimal de tu nieve
+lago de tu pradera nevada
